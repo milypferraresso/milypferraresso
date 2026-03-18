@@ -59,7 +59,7 @@ Atualmente, estou cursando o **2º ano do Ensino Médio no SESI** em conjunto co
 ### 📫 Como me encontrar:
 
 * **Instagra:** @kamilyportel
-* **LinkedIn:** https://www.linkedin.com/in/kamily-portel-ferraresso-726b1a3b0/
+* **LinkedIn:** https://www.linkedin.com/in/kamilyportelferraresso
 * **E-mail:** mily.p.ferraresso@gmail.com
 
 ---
